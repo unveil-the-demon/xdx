@@ -1,5 +1,7 @@
-# xdx
+# XDX
 ## 奸邪当道，何以象帝之先？
+揭露象帝先高管之罪，尤其马冠华和陶昕
+关键词： 职场PUA 下药 降薪 象帝先 GPU IMG XDX 爆料
 
 # 漠河学长与放牛郎
 
@@ -29,7 +31,9 @@
 
 ![image](https://github.com/unveil-the-demon/xdx/blob/main/%E5%98%B2%E8%AE%BD%E6%96%87%E6%80%BB.png)
 
-# 这位大哥是真的牛逼，朋友圈直接开嘲讽
+# 牛逼大哥
+
+这位大哥是真的牛逼，朋友圈直接开嘲讽
 
 ![image](https://github.com/unveil-the-demon/xdx/blob/main/朋友圈大哥0.png)
 ![image](https://github.com/unveil-the-demon/xdx/blob/main/朋友圈大哥1.png)
